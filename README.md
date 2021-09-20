@@ -3,6 +3,7 @@ Bande organisée
 
 13'Organisé
 
+
 Certes, ma chère, au volant de mon carosse gris, c'est une évidence qu'ils ne m'ont pas arrêté (mon cher ami, c'est une évidence)
 Soleil dans la bulle, sur le Prado, Shifter pro' (Shifter pro')
 Contre-sens (ah), ma chérie, tu es à contre-sens
